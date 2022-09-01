@@ -1,2 +1,0 @@
-# rehanbakmi.github.io
-Mamank
